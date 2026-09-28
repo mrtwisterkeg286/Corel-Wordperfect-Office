@@ -208,4 +208,4 @@ Corel WordPerfect Office is available as a complete free version, offering all f
 Don’t miss out on the opportunity to use Corel WordPerfect Office for all your productivity needs. [Download now and experience the difference!](https://www.softyne.com/corel-wordperfect-office)
 
 ---
-**Last updated:** 2026-09-27 21:43:45 UTC
+**Last updated:** 2026-09-28 00:08:01 UTC
